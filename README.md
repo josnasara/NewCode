@@ -1,2 +1,7 @@
-# NewCode
-sample
+# Hi, im Sera 
+
+# living in Kerala
+
+
+
+
